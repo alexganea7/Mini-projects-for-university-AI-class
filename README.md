@@ -1,0 +1,1 @@
+# Mini-projects-for-university-AI-class
